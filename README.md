@@ -1,1 +1,1 @@
-some of my amazing designs. I am glad you like them 
+some of my amazing designs. I am glad you like them.
